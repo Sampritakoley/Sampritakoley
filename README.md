@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **sampritakoley01@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/3RGltyy](https://bit.ly/3RGltyy)
+- 📄 Know about my experiences [https://bit.ly/3ZePIQi](https://bit.ly/3ZePIQi)
 
 <h3 align="left">Connect with me:</h3>
 
